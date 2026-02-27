@@ -10,6 +10,8 @@
 
 💜 ︵ I get uncomfortable when Vox is shipped with anyone other than Valentino, but ships are still welcome otherwise! pls...
 
+❌️ ︵ Original creator of the username CaptainJacksRum. DO NOT USE WHATSOEVER.
+
 • ———— # 🏖 # ———— •
 
 ✅ ︵ Interests/Likes :: Pirates of the Caribbean, Arcane, EPIC the musical, Forsaken, HTTYD, TADC, Percy Jackson, Hamilton, Hazbin Hotel, The Rolling Stones, Black Sabbath, Hollywood Vampires, sunsets, beaches, dogs, church, the color blue
