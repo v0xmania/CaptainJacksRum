@@ -4,13 +4,15 @@
 
 • ———— # 🏖 # ———— •
 
-📣 ︵ HELLO !!! I'm Jack/Vox! As stated in my description, this is a PonyTown only Github. If you see me around, PLEASE C+H/INT OR ROLEPLAY W ME (unless DNI/IWC is in my name)!!! I'm very friendly I swear pslspslsls
+📣 ︵ HIAIAA !!! I'm Jack/Vox! If you see me around, PLEASE C+H/INT OR ROLEPLAY W ME (unless DNI/IWC is in my name)!!! I'm very friendly I swear pslspslsls
 
 💙 ︵ Nonsharing Vox yumeshipper. StaticSparrow CEO (Vox x Captain Jack Sparrow)
 
 💜 ︵ I get uncomfortable when Vox is shipped with anyone other than Valentino, but ships are still welcome otherwise! pls...
 
 ❌️ ︵ Original creator of the username CaptainJacksRum. DO NOT USE WHATSOEVER.
+
+🥥 ︵ Some of my ponies tints are from pinterest but 99.9% are from me. CREDITS 2 ORIGINAL!!! I no copy guys duh copy bad
 
 • ———— # 🏖 # ———— •
 
